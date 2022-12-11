@@ -20,7 +20,7 @@ Keep learning…
 Nothing yet…
 
 ## Education:
-University of Commerce and Economics, Gomel
+University of Commerce and Economics, Gomel, Belarus
 
 ## English:
 A2
